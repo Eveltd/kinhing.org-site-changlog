@@ -20,6 +20,10 @@ Homepage (首頁）
 
 [花灑及龍頭](https://kinhing.org/product-category/showerheads-and-faucets/)
 
+[喉管接駁螺絲](https://kinhing.org/product-category/bolts-and-nuts/)
+
+
+
 
 2/5/2023 產品按類別：
 
