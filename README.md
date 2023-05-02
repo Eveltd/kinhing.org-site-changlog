@@ -25,7 +25,7 @@ Homepage (首頁）
 
 
 
-2/5/2023 產品按類別：
+2/5/2023為止-上線產品按類別：
 
 [坐廁](https://kinhing.org/product/ws1820/)
 
