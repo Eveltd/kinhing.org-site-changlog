@@ -125,5 +125,6 @@ Adhesives
 - Uploaded high-definition photos for the products
 - Updated meta descriptions for SEO optimization
 - Changed website logo and color scheme for better branding
+- Updated [privacy policy](https://kinhing.org/privacy_policy/) for the eshop to comply with the latest regulations
 
 
