@@ -120,6 +120,10 @@ Adhesives
 [水箱-fc301l](https://kinhing.org/product/fc301l/)
 
 
+9/6/2023
 
+- Uploaded high-definition photos for the products
+- Updated meta descriptions for SEO optimization
+- Changed website logo and color scheme for better branding
 
 
